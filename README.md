@@ -12,6 +12,11 @@
 - [It: a coisa](https://drive.google.com/file/d/14tfOXJya9ENh9_-t8N50_jwVMMtN-zUa/view?usp=drivesdk)
 - [It: uma obra prima do medo](https://drive.google.com/file/d/1WwInFJAMxuqrF9UygL_fB0epAzPQ7vbc/view?usp=drivesdk)
 - [A casa de cera](https://drive.google.com/file/d/194lmw7EyaLNcb8CvQU4Mx5XxahTdQebq/view?usp=drivesdk)
-
+- [Eu sei o que vocês fizeram no verão passado](https://drive.google.com/folderview?id=1WtoY9r4OEGYhC4V6Z76JAaqd6TK3tAop)
+- [Sexta Feira 13](https://drive.google.com/folderview?id=1wO2H5Pm8u3Mhf_IKSBMLWs_jadwihSbf)
+- [A noiva cadáver](https://drive.google.com/file/d/10VWzxs6-x1ok2EPMKJSZaWJN5Mj0h1aO/view?usp=drivesdk)
+- [Edward mãos de tesoura](https://drive.google.com/file/d/1LssEn3sXIrkj2cIu6KlzRkNpFNqXrLG1/view?usp=drivesdk)
+- [invocação do mal 1](https://drive.google.com/file/d/1xcslJpxT4T92SRmFEktoaHyld8fSQnzd/view?usp=drivesdk)
+- [invocação do mal 2](https://drive.google.com/file/d/1-O3fBrBbEEB0whHV8GhRWZ3mBiHsjAMc/view?usp=drivesdk)
 
 IG @_onlythread
