@@ -18,5 +18,8 @@
 - [Edward mãos de tesoura](https://drive.google.com/file/d/1LssEn3sXIrkj2cIu6KlzRkNpFNqXrLG1/view?usp=drivesdk)
 - [invocação do mal 1](https://drive.google.com/file/d/1xcslJpxT4T92SRmFEktoaHyld8fSQnzd/view?usp=drivesdk)
 - [invocação do mal 2](https://drive.google.com/file/d/1-O3fBrBbEEB0whHV8GhRWZ3mBiHsjAMc/view?usp=drivesdk)
+- [A morte te da parabéns](https://drive.google.com/file/d/1Qq6nZeKUA5lK2zH68H8vRee76MrTXF-B/view?usp=drivesdk)
+- [a morte te da parabéns 2](https://drive.google.com/file/d/1AWzltzuSmSbQnixGgrFRqfFsyDRkyzom/view?usp=drivesdk)
+
 
 IG @_onlythread
